@@ -9,6 +9,7 @@
 - 
 - 💞️ I’m looking to collaborate with myself
 -    to use 100% of my potential.
-- 
+-    ![image](https://github.com/G-for-Gautam/G-for-Gautam/assets/148893478/802320a7-8035-49ab-90bd-a897b25638a0)
+
 - 📫 This is Gautam, signing off.👋
 
